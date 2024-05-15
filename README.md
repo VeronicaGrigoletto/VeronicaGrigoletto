@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with my creations
 - 📫 How to reach me: www.linkedin.com/in/verônica-grigoletto
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love playing Altinha with my friends!
+- ⚡ Fun fact: I am currently envolved in Santander's and DIO BOOTCAMP - Java
